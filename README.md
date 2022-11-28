@@ -1,4 +1,4 @@
-- 👋 Hi, I'm @Deminifah
+- 👋🏾 Hi, I'm @Deminifah
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Service Providing
 - 💞️ I’m looking to collaborate on topics like Machine Learning, AI and Interplanetary Occupation
