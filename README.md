@@ -1,6 +1,6 @@
 - 👋🏾 Hi, I'm @Deminifah
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Service Providing
+- 🌱💡 I’m currently learning Service Providing
 - 💞️ I’m looking to collaborate on topics like Machine Learning, AI and Interplanetary Occupation
 - 📫 How to reach me ...whatsapp on +2348089336439 and email on deminifah@gmail.com
 
